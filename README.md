@@ -1,3 +1,1 @@
-a minecraft fabric modder
-
-Discord : astrodeveloper
+why are you here.
